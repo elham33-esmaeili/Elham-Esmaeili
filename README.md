@@ -1,4 +1,4 @@
-![Cover](<!-- Uploading "cover.jpg"... -->)
+![Cover](https://cdn.imgurl.ir/uploads/h546570_cover.jpg)
 
 # Hi
 
